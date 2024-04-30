@@ -1,0 +1,7 @@
+# LUCAS LIMA DOMINGOS
+# 1976570
+# ADS
+# 3° A
+
+
+ 
